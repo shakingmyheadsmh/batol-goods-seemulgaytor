@@ -1,0 +1,2 @@
+# batol-goods-seemulgaytor
+no
